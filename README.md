@@ -73,7 +73,12 @@ To uncover actionable insights by visualizing and analyzing:
 
 **Osaroh Isioma Ekhoragbon**  
 | Data Analyst | Retail Analytics Enthusiast  
-[LinkedIn Project link](https://www.linkedin.com/posts/osaroh-ekhoragbon_90daysofconsistency-osarohdataanalyticsjourneywith10alytics-activity-7343971967814852610-Q-3F?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAkcTOMBH04A-GBT9XWCy_GRBdwnuvWM7qY)
+
+📧 Email: osarohekhoragbon@gmail.com  
+💼 [LinkedIn Project link](https://www.linkedin.com/posts/osaroh-ekhoragbon_90daysofconsistency-osarohdataanalyticsjourneywith10alytics-activity-7343971967814852610-Q-3F?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAkcTOMBH04A-GBT9XWCy_GRBdwnuvWM7qY)
+
+🌐 GitHub: [github.com/OsarohEkhoragbon](https://github.com/OsarohEkhoragbon)
+
 
 ---
 
